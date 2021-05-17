@@ -36,13 +36,13 @@ Your email address is very valuable to internet marketers who want to send you s
 
 ### Telegram Bots
 
-- [temp_mail_bot](t.me/temp_mail_bot)
-- [@fakemailbot](t.me/fakemailbot)
-- [@etlgr_bot](t.me/etlgr_bot)
-- [@DropmailBot](t.me/DropmailBot)
-- [@smtpbot](t.me/smtpbot)
-- [@tmpmailbot](t.me/tmpmailbot)
-- [@TempMail_org_bot](t.me/TempMail_org_bot)
+- [@temp_mail_bot](https://t.me/temp_mail_bot)
+- [@fakemailbot](https://t.me/fakemailbot)
+- [@etlgr_bot](https://t.me/etlgr_bot)
+- [@DropmailBot](https://t.me/DropmailBot)
+- [@smtpbot](https://t.me/smtpbot)
+- [@tmpmailbot](https://t.me/tmpmailbot)
+- [@TempMail_org_bot](https://t.me/TempMail_org_bot)
                                                                                                  
 
 
