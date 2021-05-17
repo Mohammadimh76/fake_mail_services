@@ -36,7 +36,7 @@ Your email address is very valuable to internet marketers who want to send you s
 
 ### Telegram Bots
 
-- [@temp_mail_bot](t.me/temp_mail_bot)
+- [temp_mail_bot](t.me/temp_mail_bot)
 - [@fakemailbot](t.me/fakemailbot)
 - [@etlgr_bot](t.me/etlgr_bot)
 - [@DropmailBot](t.me/DropmailBot)
