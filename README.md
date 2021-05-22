@@ -12,13 +12,14 @@ Your email address is very valuable to internet marketers who want to send you s
 
 | | websites | | websites | | websites |
 |--------|--------|--------|--------|--------|--------|
-| ▪️ | [10minutemail.net](https://10minutemail.net/) | ▪️ | [burnermail.io](https://burnermail.io/) | ▪️ | [guerrillamail.com](https://www.guerrillamail.com/) |
+| ▪️ | [10minutesemail.net](https://10minutesemail.net/) | ▪️ | [burnermail.io](https://burnermail.io/) | ▪️ | [guerrillamail.com](https://www.guerrillamail.com/) |
 | ▪️ | [emailondeck.com](https://www.emailondeck.com/) | ▪️ | [temp-mails.com](https://www.temp-mails.com/) | ▪️ | [deadfake.com](http://deadfake.com/) |
 | ▪️ | [sharklasers.com](https://www.sharklasers.com/) | ▪️ | [mytemp.email](https://mytemp.email/) | ▪️ | [mintemail.com](http://www.mintemail.com/) |
 | ▪️ | [eyepaste.com](http://www.eyepaste.com/) | ▪️ | [mailsucker.net](mailsucker.net) | ▪️ | [emailondeck.com](https://www.emailondeck.com/) |
 | ▪️ | [getnada.com](https://getnada.com/) | ▪️ | [fakeinbox.com](http://www.fakeinbox.com/) | ▪️ | [temp-mail.org](https://temp-mail.org/) |
 | ▪️ | [tempmailaddress.com](https://www.tempmailaddress.com/) | ▪️ | [tempail.com](https://tempail.com/) | ▪️ | [tempm.com](https://tempm.com/) |
 | ▪️ | [mailsac.com](https://mailsac.com/) | ▪️ | [smailpro.com](https://smailpro.com/) | ▪️ | [10minutemail.com](https://10minutemail.com/) |
+| ▪️ | [10minutemail.net](https://10minutemail.net/) | ▪️ |  | ▪️ |  |
 
 
 ---
